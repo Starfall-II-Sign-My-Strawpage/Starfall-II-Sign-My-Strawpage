@@ -12,7 +12,7 @@ Youtube; https://www.youtube.com/@broken.starfall
 
 I MAKE MUSIC!!! AAAAAAAAAHHHHHHHH
 
-...
+☆ ☆ ☆
 
 If you see us on ponytown, or are SEARCHING for us, look for this AD by docks!
 
