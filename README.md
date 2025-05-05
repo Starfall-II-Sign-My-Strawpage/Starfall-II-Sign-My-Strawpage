@@ -11,6 +11,12 @@ Strawpage; https://starfalls.straw.page/
 Youtube; https://www.youtube.com/@broken.starfall
 
 I MAKE MUSIC!!! AAAAAAAAAHHHHHHHH
+
+...
+
+If you see us on ponytown, or are SEARCHING for us, look for this AD by docks!
+
+🎵@broken.starfall 🎵 New Artist looking to get big... SUPPORT ME! I'm on youtube!! - Search; @broken.starfall || Also linked on my github!!
 <!---
 Starfall-II-Sign-My-Strawpage/Starfall-II-Sign-My-Strawpage is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
