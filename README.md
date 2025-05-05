@@ -7,6 +7,7 @@
 ☆ Pansexual, 15, Vocaloid lover, Sleep Token lover!!!
 
 Strawpage; https://starfalls.straw.page/
+
 Youtube; https://www.youtube.com/@broken.starfall
 
 I MAKE MUSIC!!! AAAAAAAAAHHHHHHHH
