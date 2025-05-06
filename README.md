@@ -10,7 +10,8 @@ Strawpage; https://starfalls.straw.page/
 
 Youtube; https://www.youtube.com/@broken.starfall
 
-I MAKE MUSIC!!! AAAAAAAAAHHHHHHHH
+Newest song;
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7kdq0nlrt9E?si=M1idE2cmy1GeNacr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ☆ ☆ ☆
 
